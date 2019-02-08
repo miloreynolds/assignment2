@@ -34,7 +34,7 @@ b- South Korea
 c- Malaysia
 d- India
 
-Q5: For which movie dud Cruise recieve the Golden Globe Award for Best
+Q5: For which movie did Cruise recieve the Golden Globe Award for Best
 Supporting Actor in 1999?
 a- Eyes Wide Shut
 b- Magnolia 
